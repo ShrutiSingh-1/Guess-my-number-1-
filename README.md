@@ -6,3 +6,5 @@
   
   
   ![image](https://github.com/ShrutiSingh-1/Guess-my-number-1-/assets/98824644/09c664e5-8adf-4c23-b730-44d0583f7a0d)
+  ![image](https://github.com/ShrutiSingh-1/Guess-my-number-1-/assets/98824644/be216876-ebf3-4039-a16b-9b1d6679554b)
+
